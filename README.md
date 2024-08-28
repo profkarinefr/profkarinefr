@@ -3,7 +3,7 @@
 Sou Professora Karine Reschke e estou utilizando o GitHub com os alunos da disciplina de Pensamento Computacional 😄📚💻
 
 
-![](https://tenor.com/pt-BR/view/travolta-teacher-lost-confused-pulp-fiction-gif-5411279)
+![](https://media1.tenor.com/m/J1aaq4h-pnMAAAAC/travolta-teacher.gif)
 
 
 
